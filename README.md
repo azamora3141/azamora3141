@@ -9,3 +9,4 @@ I am looking for roles that allow me to grow my skills in cybersecurity and netw
 I am looking to collaborate on different projects using GitHub that will deepen my learning and understanding in this field.
 # Contact
 Reach out anytime via email: andres_4064@yahoo.com
+LinkedIn Profile: https://www.linkedin.com/feed/
